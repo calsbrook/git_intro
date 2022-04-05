@@ -1,1 +1,2 @@
 Cameron Alsbrook
+alsbrooc@oregonstate.edu
